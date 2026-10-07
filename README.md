@@ -47,4 +47,4 @@ Mother Trees, watering them, keeping the crows away and surviving the weather of
 
 ### 📬 Contact
 
-📧 contato@mysticlands.online · 🤝 parcerias@mysticlands.online · 🛡️ security@mysticlands.online
+📧 contact@mysticlands.online · 🤝 partnerships@mysticlands.online · 🛡️ security@mysticlands.online
